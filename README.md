@@ -4,7 +4,7 @@
 
 Email Me 👉 ✉️ **paulmelisa966.com** For Collaboration/Project or Anything Else. 😊😊
 
-- 🔭 **I’m currently working on:** Personal Finance
+- 🔭 **I’m currently working on:** Personal Finance Website
 - 🌱 **I’m currently learning:** Agentic AI
 - 💬 **Ask me about:** Collaboration, Tech Support
 - 📫 **How to reach me:** paulmelisa966@gmail.com
